@@ -1,0 +1,1 @@
+# Szinkirakos_app
